@@ -2,7 +2,6 @@
 - 👀 I’m interested in society 
 - 🌱 I’m currently learning law
 - 💞️ I’m looking to collaborate on social research 
-- 📫 Reach me out at hugorocavela360@gmail.com
 - ⚡ Fun fact: I can speak spanish and English, some French... not much
 
 <!---
